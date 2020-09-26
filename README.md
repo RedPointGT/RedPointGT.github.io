@@ -1,1 +1,0 @@
-# RedPointGT.github.io
